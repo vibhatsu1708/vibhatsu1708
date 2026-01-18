@@ -1,5 +1,4 @@
 # 👨🏻‍💻 Vedant Mistry
-## Software Developer
 </br>
 
 # 🧔🏻 About Me!
